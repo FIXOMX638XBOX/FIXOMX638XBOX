@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FIXO-V638X.
 - 👀 I’m interested in ...@Fixoooooo.
-- 🌱 I’m currently learning ...@VLHLL_FIXO_K12.
+- 🌱 I’m currently learning ...@FIXOMX12#8943
 - 💞️ I’m looking to collaborate on ...@Fixoooooo.
 - 📫 How to reach me fixokidkid2@outlook.com
 
